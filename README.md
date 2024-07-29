@@ -1,0 +1,1 @@
+# kangan-chane-of-life.com
